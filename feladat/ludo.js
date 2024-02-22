@@ -1,0 +1,1 @@
+azt hitte tanarur lesz itt valami
